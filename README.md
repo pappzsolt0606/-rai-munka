@@ -1,1 +1,1 @@
-# -rai-munka
+órai munka
